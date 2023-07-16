@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Soumya-mtw
-- 👀 I’m interested in Colours and the world
+- 👋 Hi, I’m Soumya!
+- 👀 I’m interested in Colours and the World
 - 🌱 I’m currently learning how to be a designer
 - 📫 Reach me at soumya_m@nid.edu
 
